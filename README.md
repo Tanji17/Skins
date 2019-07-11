@@ -15,3 +15,6 @@ Click on the skin name to download.
 
 # [Papich skin](https://dl.dropboxusercontent.com/s/h2w0w3qyajnbw1g/%21papich.osk)
 ![](https://i.imgur.com/XVxS17U.jpg)
+
+# [108Joker(Red)](https://dl.dropboxusercontent.com/s/gbqm6rc6g2xe41u/-%20%23%20108Joker%28Red%29.osk)
+![](https://i.imgur.com/AnjXQmk.jpg)

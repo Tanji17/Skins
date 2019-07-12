@@ -4,6 +4,9 @@ Click on the skin name to download.
 # [Aristia(Varvalian skin)](https://dl.dropboxusercontent.com/s/hhzpj9rsib90m2k/-%20%23%20Aristia%28Varvalian%20skin%29.osk)
 ![](https://i.imgur.com/2SLQLny.jpg)
 
+# [Prawilosc vJP(Rafis Skin)AnotherCursor](https://dl.dropboxusercontent.com/s/nf6kuzidv09w15o/-%20%23%20Prawilosc%20vJP%28Rafis%20Skin%29AnotherCursor.osk)
+![](https://i.imgur.com/7VysTe3.jpg)
+
 # [Prawilosc vJP(Rafis Skin)](https://dl.dropboxusercontent.com/s/uprl0o9he03xubo/-%20%23%20Prawilosc%20vJP%28Rafis%20Skin%29.osk)
 ![](https://i.imgur.com/JhqmOFm.jpg)
 

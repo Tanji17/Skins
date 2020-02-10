@@ -19,6 +19,9 @@ Click on the skin name to download.
 # [NaruV3.0](https://dl.dropboxusercontent.com/s/a0xpb71mgyy3cyo/-%20%23%20NaruV3.0.osk)
 ![](https://i.imgur.com/2i58rgL.jpg)
 
+# [Hamachi HD](https://drive.google.com/file/d/1wYZqy5aQpfdW8XgBoe9S0lOfonD_CKeF/view?usp=drivesdk)
+![](https://i.imgur.com/cgnnV2V.jpg )
+
 # [Papich skin](https://dl.dropboxusercontent.com/s/h2w0w3qyajnbw1g/%21papich.osk)
 ![](https://i.imgur.com/XVxS17U.jpg)
 

@@ -1,7 +1,7 @@
 Click on the skin name to download.
 # Некоторые скины я просто забыл залить, так что напишите мне если того самого скина с которым я играл здесь нету
 
-# [Aristia(Varvalian skin)](https://dl.dropboxusercontent.com/s/hhzpj9rsib90m2k/-%20%23%20Aristia%28Varvalian%20skin%29.osk) | [YellowCursor](https://dl.dropboxusercontent.com/s/8v4nyt7ec71ft1n/-%20%23%20Aristia%28Varvalian%20skin%29AnotherCursor.osk)
+# [Aristia (ОСНОВНОЙ СКИН)](https://drive.google.com/file/d/1KR0rJLqpRkAdDGrV1Q3iKYJ_WBcAfOaF/view?usp=drivesdk) | [Aristia(Varvalian skin)](https://dl.dropboxusercontent.com/s/hhzpj9rsib90m2k/-%20%23%20Aristia%28Varvalian%20skin%29.osk) | [YellowCursor](https://dl.dropboxusercontent.com/s/8v4nyt7ec71ft1n/-%20%23%20Aristia%28Varvalian%20skin%29AnotherCursor.osk)
 ![](https://i.imgur.com/2SLQLny.jpg) 
 
 # [Hikonya](https://dl.dropboxusercontent.com/s/km1sjnnigsrvkos/-%20%23%20Hikonya.osk)

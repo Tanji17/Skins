@@ -29,7 +29,7 @@ Click on the skin name to download.
 # [BTMC FREEDOM DiVE](https://skins.osuck.net/index.php?newsid=2175)
 ![](https://skins.osuck.net/uploads/posts/2021-05/1621342681_screenshot10455.jpg)
 
-# [Komori - PeguLian II (PwV)][https://skins.osuck.net/index.php?newsid=1194]
+# [Komori - PeguLian II (PwV)](https://skins.osuck.net/index.php?newsid=1194)
 ![](https://skins.osuck.net/uploads/posts/2020-01/1577986749_screenshot7602.jpg)
 
 # [MonkoEdit](https://skins.osuck.net/index.php?newsid=2011)

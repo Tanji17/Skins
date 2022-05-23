@@ -13,3 +13,15 @@ Click on the skin name to download.
 
 # [KoaLigmaQ [1.1] (owoMathi)](https://mega.nz/folder/gWwVwKzR#2pwIsA4m_d2I0SfXikynnQ)
 ![](https://i.imgur.com/eRmEwDh.jpeg)
+
+# ~~[aristia edit aireu](https://b.catgirlsare.sexy/6GXzDQzg.osk)~~ [better edit](https://b.catgirlsare.sexy/HBHN1fO9gmYt.osk)
+![](https://osu.ppy.sh/ss/16178093/c243)
+
+# [bloo](https://b.catgirlsare.sexy/HfMuYteOG8l2.osk)
+![](https://osu.ppy.sh/ss/16889093/a1ab)
+
+# [fancylad](https://b.catgirlsare.sexy/Zwi3lU_n.osk)
+![](https://osu.ppy.sh/ss/16064443/5ca9)
+
+# [Aristia - Trail Mix](https://mega.nz/file/bb5FlALC#mZYueZnR1Q2670zVN0bfzS3E0Cn4_joQ7aHG4nnPhyw)
+![](

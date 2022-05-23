@@ -24,7 +24,7 @@ Click on the skin name to download.
 ![](https://osu.ppy.sh/ss/16064443/5ca9)
 
 # [Aristia - Trail Mix](https://mega.nz/file/bb5FlALC#mZYueZnR1Q2670zVN0bfzS3E0Cn4_joQ7aHG4nnPhyw)
-![](
+![](https://cdn.discordapp.com/attachments/783170647894523944/978228907423715338/unknown.png)
 
 # [BTMC FREEDOM DiVE](https://skins.osuck.net/index.php?newsid=2175)
 ![](https://skins.osuck.net/uploads/posts/2021-05/1621342681_screenshot10455.jpg)
@@ -46,3 +46,14 @@ Click on the skin name to download.
 
 # [Rafis 2018-03-26 HDDT](https://skins.osuck.net/index.php?newsid=166)
 ![](https://skins.osuck.net/uploads/posts/2018-09/1537866905_ferbeuw.jpg)
+
+# [FlyingTuna](https://mega.nz/#F!1nxSiQjS!SPbpxdtba7S1gZXeNVUzaw?g35lkaIQ)
+![](https://i.imgur.com/GkaQls9.png)
+
+# [-+ Seoul v9 White Cursor](https://shigeskin.s-ul.eu/MTHcrJ9R)
+![](https://i.imgur.com/hHfJP3R.jpeg)
+
+# [Reedkatt](https://puu.sh/I6wl7/89fff3e7c1.osk)
+![](https://cdn.discordapp.com/attachments/783170647894523944/978228171482742784/unknown.png)
+
+

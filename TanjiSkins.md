@@ -7,3 +7,8 @@ Click on the skin name to download.
 
 # [Hyper Pigeon DD](https://drive.google.com/file/d/1XVO6cSNNTqNtmOEEwTE1ESg795kU7qg6/view)
 ![](https://camo.githubusercontent.com/9244daa0a92f70fc46cf8131709f7ca7dd9dbd084c54150355bc174c27471003/68747470733a2f2f692e696d6775722e636f6d2f35726b6b614b642e6a706567)
+
+# [MonkoBacon『Edit』](https://drive.google.com/file/d/1pOKwVmQBBVkHDUYxGLKGsMzpAfhazkU6/view)
+![](https://i.imgur.com/0OFKYOL.png)
+
+#

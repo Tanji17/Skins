@@ -17,8 +17,8 @@ Click on the skin name to download.
 # ~~[aristia edit aireu](https://b.catgirlsare.sexy/6GXzDQzg.osk)~~ [better edit](https://b.catgirlsare.sexy/HBHN1fO9gmYt.osk)
 ![](https://osu.ppy.sh/ss/16178093/c243)
 
-# [bloo](https://b.catgirlsare.sexy/HfMuYteOG8l2.osk)
-![](https://osu.ppy.sh/ss/16889093/a1ab)
+# [『BlooMoon』](https://skins.osuck.net/index.php?newsid=1312)
+![](https://skins.osuck.net/uploads/posts/2020-03/1585404376_4.jpg)
 
 # [fancylad](https://b.catgirlsare.sexy/Zwi3lU_n.osk)
 ![](https://osu.ppy.sh/ss/16064443/5ca9)

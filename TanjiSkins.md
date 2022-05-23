@@ -25,3 +25,24 @@ Click on the skin name to download.
 
 # [Aristia - Trail Mix](https://mega.nz/file/bb5FlALC#mZYueZnR1Q2670zVN0bfzS3E0Cn4_joQ7aHG4nnPhyw)
 ![](
+
+# [BTMC FREEDOM DiVE](https://skins.osuck.net/index.php?newsid=2175)
+![](https://skins.osuck.net/uploads/posts/2021-05/1621342681_screenshot10455.jpg)
+
+# [Komori - PeguLian II (PwV)][https://skins.osuck.net/index.php?newsid=1194]
+![](https://skins.osuck.net/uploads/posts/2020-01/1577986749_screenshot7602.jpg)
+
+# [MonkoEdit](https://skins.osuck.net/index.php?newsid=2011)
+![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
+
+# [#Azerite v1.2](https://skins.osuck.net/index.php?newsid=2)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537791350_c8kzhkg.jpg)
+
+# [Bacon boi 1.0](https://skins.osuck.net/index.php?newsid=1648)
+![](https://skins.osuck.net/uploads/posts/2021-02/1614321858_screenshot9400.jpg)
+
+# [- ddddd orginal -](https://snowy.s-ul.eu/tDytFd3j) 
+![](https://osu.ppy.sh/ss/12697821)
+
+# [Rafis 2018-03-26 HDDT](https://skins.osuck.net/index.php?newsid=166)
+![](https://skins.osuck.net/uploads/posts/2018-09/1537866905_ferbeuw.jpg)

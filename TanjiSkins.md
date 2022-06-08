@@ -57,4 +57,4 @@ Click on the skin name to download.
 ![](https://cdn.discordapp.com/attachments/783170647894523944/978228171482742784/unknown.png)
 
 # [-Seoul v10](https://twitter.com/SeoulessOsu/status/1474508609102954499)
-! [](https://imgur.com/a/4GbhzVT)
+! [](https://i.imgur.com/75ddWoS.png)

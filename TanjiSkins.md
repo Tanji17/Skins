@@ -1,5 +1,5 @@
 Click on the skin name to download.
-# Здесь все акутальные скины, с которыми я чаще всего играю. Если здесь нет скина, который вы ищите напишите мне, что бы я добавил его.
+# Here are all the actual skins, right now I play most often. If there is no skin here, you protect it for me, what would I add.
 
 
 # [WhiteCat 2.1_old](https://skins.osuck.net/index.php?newsid=2021)
@@ -56,4 +56,5 @@ Click on the skin name to download.
 # [Reedkatt](https://puu.sh/I6wl7/89fff3e7c1.osk)
 ![](https://cdn.discordapp.com/attachments/783170647894523944/978228171482742784/unknown.png)
 
-
+# [-Seoul v10](https://twitter.com/SeoulessOsu/status/1474508609102954499)
+! [](https://imgur.com/a/4GbhzVT)

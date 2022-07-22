@@ -70,3 +70,13 @@ Click on the skin name to download.
 
 # [JesusOmega『Planets』](https://skins.osuck.net/index.php?newsid=1489)
 ![](https://skins.osuck.net/uploads/posts/2020-07/1594283495_4.jpg)
+
+# [(SK) Mathi 1.0](https://skins.osuck.net/index.php?newsid=2143)
+![](https://skins.osuck.net/uploads/posts/2021-04/1619333073_3.jpg)
+
+# [mathi ensalada v1.5](https://skins.osuck.net/index.php?newsid=605)
+![](https://skins.osuck.net/uploads/posts/2019-03/1553936590_screenshot3523.jpg)
+
+# [404 SkinNotFound v2](https://skins.osuck.net/index.php?newsid=272)
+![](https://skins.osuck.net/uploads/posts/2018-11/1541395297_screenshot993.jpg)
+

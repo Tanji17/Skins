@@ -66,4 +66,4 @@ Click on the skin name to download.
 ![](https://i.imgur.com/pb83iCB.jpg)
 
 # [Planets Azerite](https://www.reddit.com/r/OsuSkins/comments/t5fgkw/jesusomegaplanetsx_azerite/)
-![](https://imgur.com/a/fid9bmm)
+![](https://i.imgur.com/mfxs9sj.png)

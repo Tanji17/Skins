@@ -18,7 +18,7 @@ Click on the skin name to download.
 ![](https://osu.ppy.sh/ss/16178093/c243)
 
 # [『BlooMoon』](https://skins.osuck.net/index.php?newsid=1312)
-![](https://skins.osuck.net/uploads/posts/2020-03/1585404376_4.jpg)
+![](https://skimg.osuck.net/c56789403aac0f50c1435d585ab04ea6.webp)
 
 # [fancylad](https://b.catgirlsare.sexy/Zwi3lU_n.osk)
 ![](https://osu.ppy.sh/ss/16064443/5ca9)
@@ -27,19 +27,19 @@ Click on the skin name to download.
 ![](https://cdn.discordapp.com/attachments/783170647894523944/978228907423715338/unknown.png)
 
 # [BTMC FREEDOM DiVE](https://skins.osuck.net/index.php?newsid=2175)
-![](https://skins.osuck.net/uploads/posts/2021-05/1621342681_screenshot10455.jpg)
+![](https://skimg.osuck.net/acb51c20109a012dc125038b893be56e.webp)
 
 # [Komori - PeguLian II (PwV)](https://skins.osuck.net/index.php?newsid=1194)
 ![](https://skins.osuck.net/uploads/posts/2020-01/1577986749_screenshot7602.jpg)
 
 # [MonkoEdit](https://skins.osuck.net/index.php?newsid=2011)
-![](https://skins.osuck.net/uploads/posts/2021-03/1615248704_screenshot9666.jpg)
+![](https://skimg.osuck.net/ab358180380acd6b11f7def15b844b20.webp)
 
 # [#Azerite v1.2](https://skins.osuck.net/index.php?newsid=2)
-![](https://skins.osuck.net/uploads/posts/2018-09/1537791350_c8kzhkg.jpg)
+![](https://skimg.osuck.net/260469432673932e1d895b4b2f48ef79.webp)
 
 # [Bacon boi 1.0](https://skins.osuck.net/index.php?newsid=1648)
-![](https://skins.osuck.net/uploads/posts/2021-02/1614321858_screenshot9400.jpg)
+![](https://skimg.osuck.net/bf4260e9ed071695ed55eab8bc9b0542.webp)
 
 # [- ddddd orginal -](https://snowy.s-ul.eu/tDytFd3j) 
 ![](https://osu.ppy.sh/ss/12697821)
